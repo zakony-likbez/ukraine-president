@@ -1,4 +1,4 @@
-# Президент України
+# Повноваження Президента України
 
 https://www.president.gov.ua/ua/documents/constitution/konstituciya-ukrayini-rozdil-v
 
